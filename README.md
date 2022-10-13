@@ -2,5 +2,5 @@
 - 👀 I’m interested in fish.
 - 🌱 I’m currently learning school stuff.
 - 💞️ I’m looking to collaborate on aquaculture projects
-- 📫 How to reach me email @nikko.vest@gmail.com
+- 📫 How to reach me email nikko.vest@gmail.com, nikolv@stud.ntnu.no
 
